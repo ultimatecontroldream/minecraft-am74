@@ -1,4 +1,4 @@
-#  
+#  minecraft Script rare is the best minecraft Script, featuring auto-upgrade and aimbot. Safe and powerful for all your needs.
 
 
 
